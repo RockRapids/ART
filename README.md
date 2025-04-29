@@ -1,4 +1,4 @@
-# Lyon County Intelligence Gather
+# Lyon County Intelligence Gathering
 
 In this bright year 2025, the digital landscape resembles nothing so much as ancient Rome—magnificent, crowded, and utterly resistant to architectural innovation. Platform loyalties are settled with the finality of religious conversion. 
 
